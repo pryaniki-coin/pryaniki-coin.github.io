@@ -1,0 +1,1 @@
+# pryaniki-coin.github.io
